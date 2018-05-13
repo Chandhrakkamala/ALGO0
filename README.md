@@ -1,5 +1,5 @@
 # ABOUT MYSELF
-My name is Chandhrakkamala:smile:
+My name is Chandhrakkamala:simple_smile:
 
 I am from Chennai. I joined **NIT,Trichy** in 2017. I studied in **CHENNAI PUBLIC SCHOOL**. 
 
